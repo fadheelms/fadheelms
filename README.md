@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **fadheelms@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/aeg58](https://shorturl.at/aeg58)
+- 📄 Know about my experiences 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
